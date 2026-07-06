@@ -1,4 +1,4 @@
-## Hi there Selly Here 👋
+## Hi Selly Here 👋
 I'm a 20yr old Student
 and has recently completed my Diploma in CS 
 and going to pursue Btech in CS 
